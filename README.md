@@ -1,0 +1,1 @@
+# smartday-privacidad
